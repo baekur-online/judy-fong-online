@@ -12,3 +12,4 @@
 - [The War in Ukraine, arrogance, pride and Nationalism](https://studentabladid.is/efni/2023/10/20/the-war-in-ukraine-arrogance-pride-and-nationalism) by Jean-Rémi Chareyre, translated by Judy Fong
 - [Sólgarður and Leikgarður preschools merge](https://studentabladid.is/efni/2024/3/8/slgarur-and-leikgarur-preschools-merge) by Jean-Rémi Chareyre, translated by Judy Fong
 - [Volcanic Activity and Rising Seas: Grindavik Navigates Between a Rock and a Hard Place](https://studentabladid.is/efni/2023/12/1/volcanic-activity-and-rising-seas-grindavk-navigates-between-a-rock-and-a-hard-place) by Jean-Remi Chareyre, translated by Judy Fong
+- Laws and Texts on Artificial Intelligence in The Student Paper, volume 99, translated by Judy Fong
