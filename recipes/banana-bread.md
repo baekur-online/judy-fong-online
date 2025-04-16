@@ -8,7 +8,7 @@
 - [ ] 5 tablespoons of sugar
 - [ ] 2 cups of flour
 - [ ] a sprinkle of salt
-- [ ] 1/4 baking soda
+- [ ] 1/4 teaspoon of baking soda
 
 ## Process
 1. Preheat the oven to 180 C.
