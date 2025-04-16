@@ -3,7 +3,7 @@
 ## Ingredients
 - [ ] 5 bananas
 - [ ] 25 g butter
-- [ ] - 2 eggs
+- [ ] 2 eggs
 - [ ] 2 drops of vanilla extract
 - [ ] 5 tablespoons of sugar
 - [ ] 2 cups of flour
