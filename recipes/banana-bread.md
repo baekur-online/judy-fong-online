@@ -1,14 +1,14 @@
 # Banana bread
 
 ## Ingredients
-5 bananas
-25 g butter
-2 eggs
-5 drops of vanilla extract
-5 tablespoons of sugar
-2 cups of flour
-a sprinkle of salt
-1/4 baking soda
+- [ ] 5 bananas
+- [ ] 25 g butter
+- [ ] - 2 eggs
+- [ ] 2 drops of vanilla extract
+- [ ] 5 tablespoons of sugar
+- [ ] 2 cups of flour
+- [ ] a sprinkle of salt
+- [ ] 1/4 baking soda
 
 ## Process
 1. Preheat the oven to 180 C.
