@@ -5,7 +5,7 @@
 - [ ] celery
 - [ ] carrots
 - [ ] a cube of chicken bouillion
-- [ ] a bag of frozen soup veggies (peaas, carrots, etc)
+- [ ] a bag of frozen soup veggies (peas, carrots, etc)
 - [ ] salt
 - [ ] pepper
 - [ ] garlic powder
@@ -13,6 +13,7 @@
 - [ ] chicken thighs, boneless if possible
 - [ ] a sprinkle of spinach
 - [ ] a rutabaga, optional
+- [ ] icelandic dried soup veggies (súpujurtir)
 
 ## Instructions
 1. dump all the vegetables in the pot, season it, then layer it with chicken and the pasta
