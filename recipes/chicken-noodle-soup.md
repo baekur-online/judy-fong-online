@@ -5,6 +5,7 @@
 - [ ] fusili pasta
 - [ ] celery
 - [ ] carrots
+- [ ] 1/2 a yellow or red onion
 - [ ] a cube of chicken bouillion
 - [ ] a bag of frozen soup veggies (peas, carrots, etc)
 - [ ] salt
