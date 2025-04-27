@@ -1,6 +1,7 @@
 # Chicken noodle soup
 
 ## Ingredients
+- [ ] rapeseed oil
 - [ ] fusili pasta
 - [ ] celery
 - [ ] carrots
