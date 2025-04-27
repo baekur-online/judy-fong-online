@@ -11,6 +11,7 @@
 - [ ] salt
 - [ ] mustard, optional
 - [ ] relish, optional
+- [ ] paprika powder, optional
 
 ## Instructions
 1. Combine and refrigerate or enjoy right away
