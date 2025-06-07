@@ -3,9 +3,9 @@
 ## Ingredients
 - [ ] rice
 - [ ] black pepper
-- [ ] negull
+- [ ] clove
 - [ ] ginger
-- [ ] lárviðarlauf
+- [ ] bay leaf
 - [ ] cardammon powder
 - [ ] flour
 - [ ] cinnamon
