@@ -10,6 +10,8 @@
 Halda áfram áfram áfram áfram
 
 Áfram áfram áfram áfram
+ó na na na na na
+ó na na na na na
 
 Hættu að prófa vatnið
 
