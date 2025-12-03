@@ -8,7 +8,7 @@
 
 Grafðu upp!
 
-[ Vinsamlegast vinsamlegast bara EÐA Þú geti þú geti þú geti bara]
+Koma svo koma svo koma svo [ Vinsamlegast vinsamlegast bara EÐA Þú geti þú geti þú geti bara]
 
 ég skal ábyrgjast að það sé þér fyrir bestu
 Halda áfram áfram áfram áfram
