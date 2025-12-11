@@ -33,3 +33,5 @@ So in the end English or Icelandic? Conveys the same meaning as How old are you 
 
 are people treated differently based on the chosen language
 Yes because Icelanders tend to have an English personality and an Icelandic one which are similar but has subtle differences
+
+ertu með nógu sjálfstrú- og öryggi að tala ensku á einhvern hátt sem ég ætli að hlusta þægindi? ertu viss að þú getur skilji íslenskan minn? ertu viss að framburði og málfræði minn ætlar ekki að trufla skilnings þinn?
