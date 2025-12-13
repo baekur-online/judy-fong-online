@@ -39,3 +39,5 @@ ertu með nógu sjálfstrú- og öryggi að tala ensku á einhvern hátt sem ég
 bara þú velur eitt og við getum sjá hvernig það gengur. ég veist ekki hversu hræðilegt ensku þinn og þú veist ekki hversu hræðilegt eða reiprenandi íslenskan mín er. 
 
 afsakið en þú talar ekki ensku. 
+
+hver bera meirihluti ábyrgð í þennan umræðu og það sem gerðist ef eitthvað er mistúlkað?
