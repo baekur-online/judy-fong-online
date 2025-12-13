@@ -10,7 +10,7 @@ Grafðu upp!
 
 Koma svo koma svo koma svo [ Vinsamlegast vinsamlegast bara EÐA Þú geti þú geti þú geti bara]
 
-ég skal ábyrgjast að það sé þér fyrir bestu
+ég geti ábyrgst verið bestu fyrir þér
 Halda áfram áfram áfram áfram
 
 Áfram áfram áfram áfram
