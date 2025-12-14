@@ -41,3 +41,5 @@ bara þú velur eitt og við getum sjá hvernig það gengur. ég veist ekki hve
 afsakið en þú talar ekki ensku. 
 
 hver bera meirihluti ábyrgð í þennan umræðu og það sem gerðist ef eitthvað er mistúlkað?
+
+The question is ultimately a negotiation, a question about who holds the ultimate responsibility in a conversation. Við erum að semja hvaða hlutverk við ætlum að hafa á hvor annað lífinum.
