@@ -1,3 +1,5 @@
+## Blanda saman
+
 viltu talar íslensku eða ensku? Do you prefer English or Icelandic?
 
 einfaldlega, blandað saman. en lengra sögu er svarið er margbrotið. 
