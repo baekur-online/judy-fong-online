@@ -54,3 +54,5 @@ hver bera meirihluti ábyrgð í þennan umræðu og það sem gerðist ef eitth
 The question is ultimately a negotiation, a question about who holds the ultimate responsibility in a conversation. Við erum að semja hvaða hlutverk við ætlum að hafa á hvor annað lífinum.
 
 ef þú getur tala hægt og nota orð sem ég skil og útskýra á íslensku hvað þeir meina án þess að nota énsku já við getum tala íslensku saman en ég held það ekki. 
+
+speaking to a native speaker means error mode
