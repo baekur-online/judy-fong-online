@@ -56,3 +56,5 @@ The question is ultimately a negotiation, a question about who holds the ultimat
 ef þú getur tala hægt og nota orð sem ég skil og útskýra á íslensku hvað þeir meina án þess að nota énsku já við getum tala íslensku saman en ég held það ekki. 
 
 speaking to a native speaker means error mode
+
+eitt málsgrein um bakgrunn og íslenskan saga mín. hversu vondur og góður er íslenska minn. 
