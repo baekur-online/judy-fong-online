@@ -22,7 +22,8 @@ Yellow-face. Whitewashing.
 
 Arresting a teenager on the bus.\
 Bringing in the big guns. SWAT\
-SWAT. Swatting. Fordómur. Lúxus vandamál. Arrest him again at a bakery. \
+SWAT. Swatting. Fordómur. Lúxus vandamál.\
+Arrest him again at a bakery. \
 SWAT! SWAT! SWAT! \
 When does ignorance become
 rasísma? 
