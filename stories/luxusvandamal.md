@@ -8,7 +8,8 @@ It doesn't happen in Iceland\
 það gerðist aldrei á Íslandi. \
 Alls ekki. Alls ekki. Alls ekki
 
-The coloured girl. The coloured girl.\ Racist! What do I call
+The coloured girl. The coloured girl.\
+Racist! What do I call
 someone from the middle-east?
 
 það gerðist ekki á Íslandi. \
