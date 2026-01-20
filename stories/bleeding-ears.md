@@ -2,6 +2,7 @@
 
 "Viltu talar íslensku eða ensku? Do you prefer English or Icelandic?"
 Þetta er spurning sem fólk heyrir oft á Íslandi nútími.
+„Do you speak Icelandic?"
 
 En hjá fólk eins og ég er það erfið spurning að svara. Vegna þess ég er með íslensku mín á CEFR B2-stig. Það meinar að ég skilið meirihátt af íslensku við þá sem hafa málið á móðurmálið. En mig vantar skilnings með eitt af hvert tíu orð. Svo ég get ekki hafa samskipti á íslensku með flæði. Það er smá truflandi og pirrandi fyrir hvor annað móttalandi. Og þegar ég útskyrir að ég skil ekki orð á íslensku er fólk oft að þýða orð á ensku ekki útskyrir þeim á íslensku ennþá er samtalið á íslensku og þeir hafa spurt mig hvaða tungumálið á byrjunni.
 
