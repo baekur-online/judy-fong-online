@@ -1,23 +1,34 @@
-## Blanda saman
+## Blandað saman
 
-"Viltu talar íslensku eða ensku? Do you prefer English or Icelandic?"
-Þetta er spurning sem fólk heyrir oft á Íslandi nútími.
-„Do you speak Icelandic?"
+"Viltu talar íslensku eða ensku? Do you prefer English or Icelandic?" er spurningin sem fólk heyrir oft á Íslandi nútími. Það er smá eins og leið að heilsa fólk. En það er erfið spurning að svara. Þessi spurning er einnig spurt vegna þess spyrjandi veit ekki hvaða tungumál að nota. Þá má segja af hverju er svarið af þessari spurningunni svo flókin?
 
-En hjá fólk eins og ég er það erfið spurning að svara. Vegna þess ég er með íslensku mín á CEFR B2-stig. Það meinar að ég skilið meirihátt af íslensku við þá sem hafa málið á móðurmálið. En mig vantar skilnings með eitt af hvert tíu orð. Svo ég get ekki hafa samskipti á íslensku með flæði. Það er smá truflandi og pirrandi fyrir hvor annað móttalandi. Og þegar ég útskyrir að ég skil ekki orð á íslensku er fólk oft að þýða orð á ensku ekki útskyrir þeim á íslensku ennþá er samtalið á íslensku og þeir hafa spurt mig hvaða tungumálið á byrjunni.
+Hjá fólk eins og ég er þessi spurning erfið að svara, vegna þess íslenskan mín er bara á Evrópski tungumálaramminn (CEFR) B2-stig. Á rammanum, það meinar fjögur hlutar. Í fyrsta lagi, að "Ég get tekið þátt í samræðum óundirbúin(n) um efni sem ég þekki, hef áhuga á eða tengjast daglegu lífi." Í öðru lagi, að "Ég get skrifað skýra texta um ýmis efni sem tengjast áhugasviði mínu. Ég get skrifað ritgerð og fært rök fyrir máli mínu." Í þriðju lagi, "Ég get lesið greinar, t.d. í fjölmiðlum, um vandamál samtímans. Ég skil texta í bókmenntum sem fjalla um samtímann." Í síðustu lagi, "Ég skil aðalatriði í venjulegu talmáli um efni sem ég þekki og tengjast vinnunni, námi eða áhugamálum." Þegar til lengri tíma er litið, get ég skilið, hlustað, sagt, og lesið aðalatriði en ekki smáatriði á íslenskan. Með tölur, mig vantar skilnings í eitt af hverjum tíu orð. Aðallega, samskipti milli ég og hinum mælandi á íslensku ætlar ekki að fara með flæði. Sá er smá truflandi og pirrandi fyrir öllum í umræðum, sem er ekki gott.
+
+Dæmar um truflandi og pirrandi atriði eru alls konar. Til dæmis ef ég skil ekki orð, er fólk oft að endurtaka sá orð á ensku, ekki endurtekur því á íslensku eða útskýrir á íslensku jafnvel, ég bað íslenska sem umræðu tungumálið á byrjunni. Stundum, ég misnota orð á íslensku hver er sökum um misskilninginn. Til dæmis ég hef ruglast saman endilega og eðlilega einu sinni. Auk þess er ég með vondu framburð og málfræði. Þannig að Íslendingar þarf að gera mikla meira setningabyggingunni annars. Að sama tíma tekur samtalið miklir lengri en venjulegt samtalið hver sem prófa þolinmóður þeirra í senn. Loks, tekur ég lengra tími að skilja orð vegna þess ég þarf að túlka hvert einasta atkvæði og tengja þeim saman.
+
+Á hinn bóginn er ensku sem er móðurmálið mitt og íslendingar eru oft að minnsta kosti CEFR C1 sem meinar þeir skilja næstum því öllum það gerðist á ensku. En, ég er vanur að tala á ensku bara með fólk hvert er með CEFR C2 eða sem móðurmál. Þannig að á ensku er ég í svipað stöð eins og íslendingar á íslensku. Við erum öfug.
+
+Loks, er annar möguleiki, nota báðar ensku og íslensku á sama tíma. 
+
+```
+Það meinar að ég skilið meirihátt af íslensku við þá sem hafa málið á móðurmálið. En mig vantar skilnings með eitt af hvert tíu orð. Svo ég get ekki hafa samskipti á íslensku með flæði. Það er smá truflandi og pirrandi fyrir hvor annað móttalandi. Og þegar ég útskyrir að ég skil ekki orð á íslensku er fólk oft að þýða orð á ensku ekki útskyrir þeim á íslensku ennþá er samtalið á íslensku og þeir hafa spurt mig hvaða tungumálið á byrjunni.
 
 Annars er ég ekki viss hversu þólinmóður fólk er með vont íslensku framburð og málfræði.
 
-einfaldlega, blandað saman. en lengra sögu er svarið er margbrotið. 
+```
 
-do you want your ears to bleed or mine?
+-- einfaldlega, blandað saman. en lengra sögu er svarið er margbrotið. 
 
-do you want me to butcher your language or for you to butcher mine?
+-- do you want your ears to bleed or mine?
+
+-- do you want me to butcher your language or for you to butcher mine?
 
 þegar ég misnota íslensku geturðu ennþa skilar hvað ég meinti að segja? ætlarðu að kenna mér venjulegt íslenskan orðaforði?
 
 geturðu leiðrétta mér án þess að pásu oft lang á smá atridi? ég er ekki með svör fyrir þessur svo ég dirfist ekki að svara spurningar þín. 
+```
 
+```
 "Koreans say "나이가 어떻게 되세요?"
 (na-i-ga eo-tteo-ke doe-se-yo)
 
@@ -28,6 +39,7 @@ Meaning: "I need to know if I should respect you or if you should respect me bec
 The question that determines your entire social existence.
 
 " - by adeimmersed on Threads 2025-12-11
+```
 
 It’s multifaceted. But ultimately when Icelanders ask which language do you prefer they’re trying to be polite and respectful while getting the task done. 
 
@@ -58,4 +70,6 @@ ef þú getur tala hægt og nota orð sem ég skil og útskýra á íslensku hva
 
 speaking to a native speaker means error mode
 
-eitt málsgrein um bakgrunn og íslenskan saga mín. hversu vondur og góður er íslenska minn. 
+eitt málsgrein um bakgrunn og íslenskan saga mín. hversu vondur og góður er íslenska minn.
+
+En betur spurning er „Talarðu íslensku? Do you speak Icelandic?" vegna þess Íslendingar eru með meira reynslu að velja en útlendingar.
