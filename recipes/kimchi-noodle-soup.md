@@ -12,7 +12,8 @@
 - [ ] a dash of fish sauce
 - [ ] half a teaspoon of sugar
 - [ ] 1 liter of water
-- [ ] ground pork (optional)
+- [ ] 250 grams pork shoulder sliced (optional)
+- [ ] green onion (optional)
 
 # Method
 
