@@ -7,3 +7,5 @@ Ho Yan Hor come in individual teabags and they are drunk when you are feeling a 
 Gum Wo Cha is a loose leaf tea packaged in small boxes. This tea is meant to be drunk when you're feeling very ill. These tea boxes are then dumped in a pot and boiled with bits of green onion heads. The tea itself contains some licorice.
 
 Chrysmori Beverage is made up of Chrysanthemum tea and Hap Gu Cho tea so its calming and energizing so somewhat like matcha.
+
+Mati Zhuzhe Maogen Herbal Beverage (葛仙翁 马蹄竹蔗茅根晶) is made of sugar cane and water chestnuts among other things. It's a soothing and hydrating drink. It does not appear to have caffeinated properties.
