@@ -19,7 +19,7 @@ make sure to get enough fiber by eating veggie and fruit snacks from the outdoor
 
 too much cigarette smoke and perfumes at champs de lýsee
 
-Lots of bakeries and pâtessire. The day prior I got a croissant and pain au chocolat at a different bakery. I went to boulangerielepatisserie.com and got brioche cadre sweet, a strawberry tartlet and a chousette de pomme. it was very flakey.
+Lots of bakeries and pâtessire. The day prior I got a croissant and pain au chocolat at a different bakery. I went to La Parisienne Mickaël Reydellet boulangerielaparisienne.com and got brioche cadre sweet, a strawberry tartlet and a chousette de pomme. It was very flakey. The bakery was just around the corner from my hotel.
 
 carrefour city was a corner store that was often opened late despite Google listing it as having shorter opening hours.
 red oasis is like a mix between apple juice and ribena. i highly recommend along with orangina.
