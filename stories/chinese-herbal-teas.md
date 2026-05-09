@@ -9,3 +9,5 @@ Gum Wo Cha is a loose leaf tea packaged in small boxes. This tea is meant to be 
 Chrysmori Beverage is made up of Chrysanthemum tea and Hap Gu Cho tea so its calming and energizing so somewhat like matcha.
 
 Mati Zhuzhe Maogen Herbal Beverage (葛仙翁 马蹄竹蔗茅根晶) is made of sugar cane and water chestnuts among other things. It's a soothing and hydrating drink. It does not appear to have caffeinated properties.
+
+王老古 or 加多宝 WongLouGut or JDB is another Chinese herbal drink but it comes in a can. It is often found in a red can. but sometimes its green. It is made by two different companies depending on region. I first tried it in Nanjing when I was visiting my Israeli friend.
