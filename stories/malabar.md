@@ -54,6 +54,6 @@ Visited Muji for their thin pens and socks since it was raining most of the time
 
 luxury stores often have a waiting area to enter. but theyre on the same street as the arc de trioumphe
 
-bateau moucoux was €20 a person for an hour long ride up and down the Seine. it provides an amazing view of the Eiffel Tower.
+Bateaux Mouches was €20 a person for an hour long ride up and down the Seine. we took the first boat ride at 10:00. There were plenty of seats for everyone. The boat was less than half full. it provides an amazing view of the Eiffel Tower.
 
 bookstores had le petit prince but not often le petit nicolas.
