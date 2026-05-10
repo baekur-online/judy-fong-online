@@ -6,7 +6,9 @@ bathrooms required 50 cents to a euro to use. this was in restaurants or near to
 
 ## Food
 
-Ate delicious apricots, strawberries, and loquat. the strawberries were a bit tart. the loquat was quite large.
+Ate delicious apricots, strawberries, and loquat. the strawberries were a bit tart. the loquat was quite large from the outdoor market. 
+
+My first day there I had assorted house made dim sum at Shin Ye. It was good but tasted more like homemade dim sum than professional restaurant dim sum. The variety contained xiaolongbao which were great.
 
 mala bar in paris france
 
@@ -14,6 +16,8 @@ bavette
 shrimp
 ube latte
 baguette
+
+Both dishes were amazing. 
 
 make sure to get enough fiber by eating veggie and fruit snacks from the outdoor markets or shops. meals dont tend to have much fiber. 
 
@@ -40,11 +44,11 @@ I used physical paper Navigo tickets. They were convenient to use and could be u
 
 orly airport is easier to connect to paris itself
 
-cdg has confusing transfers. need to use RER to get to CDG. rer B specifically for the last leg. but taking the bus to RER allowed me to see the sights one last time. RER is not metro. maybe they're trams or trains.
+cdg has confusing transfers. need to use RER to get to CDG. rer B specifically for the last leg. but taking the bus to RER allowed me to see the sights one last time. RER is not metro. maybe they're trams or trains. CDG seems to be in zone 5.
 
 CDG had convenient duty free machines. But the system was sometimes a bit delayed to synchronize between machines.
 
-Navigo trams were convenient but takes a bit. Almost everything took 20-40 mins to travel between.
+Navigo trams were convenient but takes a bit. Almost everything took 20-40 mins to travel between. We mostly stayed in zone one of one to five. Maybe went out of it to visit La Musicale Seine.
 
 I only bought a day pass for one of the three days I was in paris since most sights thats I wanted to see were within walking distance. 
 
