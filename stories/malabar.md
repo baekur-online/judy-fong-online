@@ -19,14 +19,18 @@ make sure to get enough fiber by eating veggie and fruit snacks from the outdoor
 
 too much cigarette smoke and perfumes at champs de lýsee
 
-Lots of bakeries and pâtessire. The day prior I got a croissant and pain au chocolat at a different bakery. I went to La Parisienne Mickaël Reydellet boulangerielaparisienne.com and got brioche cadre sweet, a strawberry tartlet and a chousette de pomme. It was very flakey. The bakery was just around the corner from my hotel.
+Lots of bakeries and pâtessire. The day prior I got a croissant and pain au chocolat at a different bakery. It might have been Boulangerie du Champ de Mars since they have similar bags for their pastries and its approximately the distance I walked away from the hotel. I highly recommend their croissant. It was delicious. They also sold pistachio macarons among other flavors like coffee, chocolate, and lemon. 
+
+I went to La Parisienne Mickaël Reydellet boulangerielaparisienne.com and got brioche cadre sweet, a strawberry tartlet and a chousette de pomme. It was very flakey. The bakery was just around the corner from my hotel.
 
 carrefour city was a corner store that was often opened late despite Google listing it as having shorter opening hours.
 red oasis is like a mix between apple juice and ribena. i highly recommend along with orangina.
 
-boght soft sesame nougat from a chinese restaurant. it was delicious.
+boght soft sesame nougat from a chinese restaurant called traiteur asiastique DZ. it was delicious. Their website is traiteurdz.fr
 
-had delicious chicken alfredo linguine.
+At Bar du Central I had delicious chicken alfredo linguine. Their waitstaff understood both English and French. The meal also came with complimentary slices of baguette. This establishment is open late which is a plus when I was trying to fit a lot into my day as well as dinner.
+
+Ate vegetarian pho at Dong Phat. The duck was delicious but poorly cut. 
 
 the lower bar of food was all acceptable
 
