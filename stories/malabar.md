@@ -31,14 +31,18 @@ had delicious chicken alfredo linguine.
 the lower bar of food was all acceptable
 
 ## Transportation
+
+I used physical paper Navigo tickets. They were convenient to use and could be used for both the airport trips and regular daily use. The tickets could be reloaded using the app, reducing the need to use the transit machines at each station.
+
 orly airport is easier to connect to paris itself
 
 cdg has confusing transfers. need to use RER to get to CDG. rer B specifically for the last leg. but taking the bus to RER allowed me to see the sights one last time. RER is not metro. maybe they're trams or trains.
 
-Navigo trams were convenient but takes a bit. Almost everything took 20-40 mins to travel between.
-
 CDG had convenient duty free machines. But the system was sometimes a bit delayed to synchronize between machines.
 
+Navigo trams were convenient but takes a bit. Almost everything took 20-40 mins to travel between.
+
+I only bought a day pass for one of the three days I was in paris since most sights thats I wanted to see were within walking distance. 
 
 ## Accommodation
 all hotels in Paris must pay a city tax depending on the hotel's star rating. 
@@ -54,6 +58,6 @@ Visited Muji for their thin pens and socks since it was raining most of the time
 
 luxury stores often have a waiting area to enter. but theyre on the same street as the arc de trioumphe
 
-Bateaux Mouches was €20 a person for an hour long ride up and down the Seine. we took the first boat ride at 10:00. There were plenty of seats for everyone. The boat was less than half full. The boat trip provides a scenic view of over ten tourist attractions. The notable ones are The Eiffel Tower and Cathédrale Notre-Dame. The trip provides an amazing view of the Eiffel Tower. They have a loudspeaker announcing the sites as they appear in multiple languages, some of which were English, French, Spanish and Mandarin. But its not possible to hear the announcements when seated in the bottom interior seats.
+Bateaux Mouches was €20 a person for an hour long ride up and down the Seine. we took the first boat ride at 10:00. There were plenty of seats for everyone. The boat was less than half full. The boat trip provides a scenic view of over ten tourist attractions. The notable ones are The Eiffel Tower, Pont Alexandre III and Cathédrale Notre-Dame. The trip provides an amazing view of the Eiffel Tower. They have a loudspeaker announcing the sites as they appear in multiple languages, some of which were English, French, Spanish and Mandarin. But its not possible to hear the announcements when seated in the bottom interior seats.
 
 bookstores had le petit prince but not often le petit nicolas.
