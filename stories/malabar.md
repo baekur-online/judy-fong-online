@@ -4,6 +4,8 @@ general thoughts. Paris is very dirty and grimy so need to shower often or the g
 
 bathrooms required 50 cents to a euro to use. this was in restaurants or near tourist attractions.
 
+Le Champs d'elysée was like being transported to Elizabethean times when people didn't bathe so they covered up their stench with smoke and abundant perfume.
+
 ## Food
 
 Ate delicious apricots, strawberries, and loquat. the strawberries were a bit tart. the loquat was quite large from the outdoor market. 
@@ -35,6 +37,8 @@ boght soft sesame nougat from a chinese restaurant called traiteur asiastique DZ
 At Bar du Central I had delicious chicken alfredo linguine. Their waitstaff understood both English and French. The meal also came with complimentary slices of baguette. This establishment is open late which is a plus when I was trying to fit a lot into my day as well as dinner.
 
 Ate vegetarian pho at Dong Phat. The duck was delicious but poorly cut. 
+
+Beitea had a nice peach lemon boba tea.
 
 the lower bar of food was all acceptable
 
