@@ -22,5 +22,5 @@
 
 ## 
 
-makes about 8
-adapted from yoon.korean.daily's recipe on Threads
+- makes about 8
+- adapted from yoon.korean.daily's recipe on Threads
