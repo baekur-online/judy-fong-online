@@ -1,31 +1,34 @@
 # Last minute paris trip
 
-general thoughts. Paris is very dirty and grimy so need to shower often or the grime built up on my skin. 
+First, general thoughts. Paris air is very dirty and grimy so I needed to
+shower often or the grime built up on my skin.
 
-bathrooms required 50 cents to a euro to use. this was in restaurants or near tourist attractions.
+In order to use bathrooms, be it near tourist attractions or in a restaurant,
+they required money, from fifty cents to a euro.
 
-Le Champs d'elysée was like being transported to Elizabethean times when people didn't bathe so they covered up their stench with smoke and abundant perfume.
+Being on L'avenue des Champs-Élysées or les Champs was like being transported
+to Elizabethean times when people didn't bathe so they covered up their stench
+with smoke and abundant perfume. The air was like this all up and down les
+Champs. It made it hard to breath a bit and like there was no fresh air.
 
 ## Food
 
-Ate delicious apricots, strawberries, and loquat. the strawberries were a bit tart. the loquat was quite large from the outdoor market. 
+On my first day, I passed by an outdoor market which sold lots of foods and
+especially fruits. I ate delicious apricots, strawberries, and loquat. In
+review, the strawberries were a bit tart. Meanwhile, the loquat was quite large
+and a little fragile after being smushed by the strawberries all day but it was
+still great.
 
-My first day there I had assorted house made dim sum at Shin Ye. It was good but tasted more like homemade dim sum than professional restaurant dim sum. The variety contained xiaolongbao which were great.
+Afterward, I had assorted house made dim sum at Shin Ye. It was good but tasted
+more like homemade dim sum than professional restaurant dim sum. The wrappers
+were all a very similar texture and flavor. None were thin or translucent. The
+variety contained xiaolongbao which were great because they had soup inside.
 
-mala bar in paris france
+Later in my trip, I went to Malabar where I got bavette, shrimp, and ube latte.
+It came with some deliciously sweet sliced baguette on the side. Both dishes
+were amazing.
 
-bavette
-shrimp
-ube latte
-baguette
-
-Both dishes were amazing. 
-
-make sure to get enough fiber by eating veggie and fruit snacks from the outdoor markets or shops. meals dont tend to have much fiber. 
-
-too much cigarette smoke and perfumes at champs de lýsee
-
-Lots of bakeries and pâtessire. The day prior I got a croissant and pain au chocolat at a different bakery. It might have been Boulangerie du Champ de Mars since they have similar bags for their pastries and its approximately the distance I walked away from the hotel. I highly recommend their croissant. It was delicious. They also sold pistachio macarons among other flavors like coffee, chocolate, and lemon. 
+In terms of snacking, there were Lots of bakeries and pâtissier. The day prior I got a croissant and pain au chocolat at a different bakery. It might have been Boulangerie du Champ de Mars since they have similar bags for their pastries and its approximately the distance I walked away from the hotel. I highly recommend their croissant. It was delicious. They also sold pistachio macarons among other flavors like coffee, chocolate, and lemon.
 
 I went to La Parisienne Mickaël Reydellet boulangerielaparisienne.com and got brioche cadre sweet, a strawberry tartlet and a chousette de pomme. It was very flakey. The bakery was just around the corner from my hotel.
 
@@ -36,15 +39,25 @@ boght soft sesame nougat from a chinese restaurant called traiteur asiastique DZ
 
 At Bar du Central I had delicious chicken alfredo linguine. Their waitstaff understood both English and French. The meal also came with complimentary slices of baguette. This establishment is open late which is a plus when I was trying to fit a lot into my day as well as dinner.
 
-Ate vegetarian pho at Dong Phat. The duck was delicious but poorly cut. 
+For lunch one day, I ate vegetarian pho at Dong Phat. The duck was delicious but poorly cut.
 
 Beitea had a nice peach lemon boba tea.
 
 the lower bar of food was all acceptable
 
+But some of these meals were pretty low fiber so I'd recommend hitting up the
+grocery stores or outer markets to get your daily fiber by eating veggie and
+fruit snacks. Grocery stores tended to be pretty common in some areas, like
+three in the same three block radius. Whereas others were full of restaurants
+and bakeries so grocery stores or hard to find.
+
 ## Transportation
 
-I used physical paper Navigo tickets. They were convenient to use and could be used for both the airport trips and regular daily use. The tickets could be reloaded using the app, reducing the need to use the transit machines at each station.
+I used physical paper Navigo tickets. They were convenient to use and could be
+used for both the airport trips and regular daily use. The tickets could be
+reloaded using the app, reducing the need to use the transit machines at each
+station. I used the paper tickets so I didn't need to be worried about my phone
+running out of battery and no longer having an accessible ticket.
 
 orly airport is easier to connect to paris itself
 
@@ -54,10 +67,10 @@ CDG had convenient duty free machines. But the system was sometimes a bit delaye
 
 Navigo trams were convenient but takes a bit. Almost everything took 20-40 mins to travel between. We mostly stayed in zone one of one to five. Maybe went out of it to visit La Musicale Seine.
 
-I only bought a day pass for one of the three days I was in paris since most sights thats I wanted to see were within walking distance. 
+I only bought a day pass for one of the three days I was in paris since most sights thats I wanted to see were within walking distance.
 
 ## Accommodation
-all hotels in Paris must pay a city tax depending on the hotel's star rating. 
+all hotels in Paris must pay a city tax depending on the hotel's star rating.
 hotel eiffel 7 was decent. stinky elevator. on rue amelie. malonehotels.com and use promo code: WBACK
 
 it'll discount/make free most tarifs/taxes
