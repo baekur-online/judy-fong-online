@@ -1,7 +1,8 @@
 # Last minute paris trip
 
-First, general thoughts. Paris air is very dirty and grimy so I needed to
-shower often or the grime built up on my skin.
+First, general thoughts. I went on an extended weekend trip to Paris. The air
+is very dirty and grimy so I needed to shower often or the grime built up on my
+skin.
 
 In order to use bathrooms, be it near tourist attractions or in a restaurant,
 they required money, from fifty cents to a euro.
@@ -14,23 +15,37 @@ Champs. It made it hard to breath a bit and like there was no fresh air.
 ## Food
 
 On my first day, I passed by an outdoor market which sold lots of foods and
-especially fruits. I ate delicious apricots, strawberries, and loquat. In
-review, the strawberries were a bit tart. Meanwhile, the loquat was quite large
-and a little fragile after being smushed by the strawberries all day but it was
-still great.
+especially fruits. Being there reminded me why I don't prioritize making food
+or looking for food, because I grew up in a similarly food abundant place. It
+felt like coming home. At the market, I ate delicious apricots, strawberries,
+and loquat. In review, the strawberries were a bit tart. Meanwhile, the loquat
+was quite large and a little fragile after being smushed by the strawberries
+all day but it was still great.
 
 Afterward, I had assorted house made dim sum at Shin Ye. It was good but tasted
 more like homemade dim sum than professional restaurant dim sum. The wrappers
-were all a very similar texture and flavor. None were thin or translucent. The
-variety contained xiaolongbao which were great because they had soup inside.
+were all a very similar texture and flavor. Whereas restaurant quality dim sum
+usually has a variety of textures, some thin and others translucent. The
+variety contained xiaolongbao which were great because they had soup inside,
+which unfortunately isn't always the cause despite it being xiaolongbao's
+signature feature.
 
-Later in my trip, I went to Malabar where I got bavette, shrimp, and ube latte.
-It came with some deliciously sweet sliced baguette on the side. Both dishes
-were amazing.
+On my second day, I went to Malabar where I got bavette, shrimp, and a warm ube
+latte.  It came with some deliciously sweet sliced baguette on the side. Both
+dishes were amazing. The ube latte was okay.
 
-In terms of snacking, there were Lots of bakeries and pâtissier. The day prior I got a croissant and pain au chocolat at a different bakery. It might have been Boulangerie du Champ de Mars since they have similar bags for their pastries and its approximately the distance I walked away from the hotel. I highly recommend their croissant. It was delicious. They also sold pistachio macarons among other flavors like coffee, chocolate, and lemon.
+In terms of snacking, there were lots of bakeries and pâtissier. On my third
+day I got a croissant and pain au chocolat at a bakery, Boulangerie du Champ de
+Mars, which has pretty unique pastry bags with lots of words on it.  It was
+within walk distance from my hotel. I highly recommend their croissant. It was
+delicious. They also sold large pistachio macarons with flavors like coffee,
+chocolate, and lemon.
 
-I went to La Parisienne Mickaël Reydellet boulangerielaparisienne.com and got brioche cadre sweet, a strawberry tartlet and a chousette de pomme. It was very flakey. The bakery was just around the corner from my hotel.
+On my last day, I went to La Parisienne Mickaël Reydellet. The website is
+boulangerielaparisienne.com and got three items, a brioche cadre sweet, a
+strawberry tartlet and a chousette de pomme. Chousettes de pomme were found in
+nearly every bakery. The one I ate was very flakey. The bakery was just around
+the corner from my hotel.
 
 carrefour city was a corner store that was often opened late despite Google listing it as having shorter opening hours.
 red oasis is like a mix between apple juice and ribena. i highly recommend along with orangina.
