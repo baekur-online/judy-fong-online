@@ -1,0 +1,1 @@
+发财大吉凉果 Facai Daji Liangguo is a Chinese orange flavored plum candy meant to wish one luck during the new year.
