@@ -1,5 +1,7 @@
 ## Reflecting pool cocktail
 
+the reflecting pool cocktail first became popular on threads june 24 2026
+
 ## Icelandic waters with Icebergs
 
 ### Ingredients
