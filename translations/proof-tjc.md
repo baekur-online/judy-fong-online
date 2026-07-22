@@ -36,7 +36,7 @@ Imma carry on Imma carry on\
 Since you came back I’ve been wrapped in euphoria\
 Imma carry on Imma carry on for love\
 Make it easy for me\
-Baby take it easy on me\
+Baby take i' easy on me\
 These days don’t end\
 And we’ve lost things that swing our soul\
 Cause we’re spreadin’ so thin\
