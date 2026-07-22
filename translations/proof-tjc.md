@@ -20,7 +20,7 @@ Baby come here closer\
 Head up on my shoulder\
 You know I’ll be carrying on\
 (If you)\
-Baby come here closer\
+Baby come 'ere closer\
 I’ll be your defender\
 Feels like I never fail\
 This is what it’s meant to be\
