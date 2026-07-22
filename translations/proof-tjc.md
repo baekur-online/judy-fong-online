@@ -50,10 +50,10 @@ Baby come here closer\
 I’ll be your defender\
 Feels like I never fail\
 This is what it’s meant to be\
-Do I need to prove t'yah\
+Do I need to prove t'ya\
 Do I need more proof to\
 Stay right next to you and your clues\
-Do I need to prove to you\
+Do I need to prove t'you\
 Should I be your proof to\
 Stay right next to you I’m into\
 Hey Gotta get away from you to prove\
