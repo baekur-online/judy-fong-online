@@ -66,7 +66,7 @@ Imma get what you want\
 Do I need to prove t'you\
 Do I need more proof to\
 Stay right next to you and your clues\
-Do I need to prove to you\
+Do I need to prove t'you\
 Should I be your proof to\
 Stay right next to you\
 Above all\
