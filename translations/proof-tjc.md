@@ -12,7 +12,7 @@ I would change nothing\
 People spend their whole lives\
 Just to fit in feel like\
 Nothing anymore\
-Cause they’re afraid of\
+Cause they are afraid of\
 The games that we’re given\
 To play in this party we never do\
 (I can tell you)\
