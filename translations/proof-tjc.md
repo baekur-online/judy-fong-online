@@ -74,3 +74,5 @@ I think I’d like to learn when you go against my opinion\
 Imma carry on Imma carry on\
 Since you came back I’ve been wrapped in euphoria\
 Imma carry on Imma carry on for love
+
+Chinese Lyrics: https://baike.baidu.com/item/Proof/67142145
