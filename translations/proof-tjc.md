@@ -31,7 +31,7 @@ Do I need to prove t'you\
 Should I be your proof to\
 Stay right next to you\
 Above all\
-I think I’d like to learn when you go\ against my opinion\
+I think I’d like to learn when you go against my opinion\
 Imma carry on Imma carry on\
 Since you came back I’ve been wrapped in euphoria\
 Imma carry on Imma carry on for love\
