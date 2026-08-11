@@ -9,26 +9,28 @@ Next, in order to use bathrooms, be it near tourist attractions or in a
 restaurant, the facilities required payment, anywhere from fifty cents to a
 euro.
 
-Then, there is being on L'avenue des Champs-Élysées or les Champs was like
-being transported to Elizabethean times but not in a good way, more like when
-people didn't bathe so they covered up their stench with smoke and abundant
-perfume. The air was like this all up and down les Champs. It made it hard to
-breath a bit and like there was no fresh air.
+Then, there is being on L'avenue des Champs-Élysées or les Champs as it's
+called in French, it was like being transported to Elizabethean times but not
+in a good way, more like when people didn't bathe so they covered up their
+stench with smoke and abundant perfume. The air was like this all up and down
+les Champs. It made it hard to breath a bit and like there was no fresh air.
 
-I split up my trip details into food, transportation,
-accomodation, and the attractions.
+As for more in-depth sections, I split up my trip details into food,
+transportation, accomodation, and my attractions.
 
 ## Food
 
-Now to the best part of Paris, the food. There was lots to eat whether it was
-eating out or shopping at the grocery stores. Also, the lower bar for food
-quality was all acceptable which is harder to find in other cities.
+Now let's start with the best part of Paris, the food. There was lots to eat
+whether it was eating out or shopping at the grocery stores. Also, the lower
+bar for food quality was all acceptable which is harder to find in other
+cities, making it less stressful to find the right spot.
 
-But some of these meals were pretty low fiber so I'd recommend hitting up the
-grocery stores or outer markets to get your daily fiber by eating veggie and
+But some of these meals were pretty low fiber so next time I plan on hitting up
+the grocery stores or outer markets to get my daily fiber by eating veggie and
 fruit snacks. Grocery stores tended to be pretty common in some areas, like
 three in the same three block radius. Whereas others were full of restaurants
-and bakeries so grocery stores were hard to find.
+and bakeries so grocery stores were hard to find. But either way, food was
+always nearby.
 
 As for the grocery stores, Carrefour city was a corner store that was often
 opened late despite Google listing it as having shorter opening hours. I often
@@ -38,33 +40,34 @@ i highly recommend it along with Orangina if you want to try a local drink.
 On my first day, I passed by an outdoor market which sold lots of foods,
 especially fruits. Being there reminded me why I generally don't prioritize
 making food or looking for food, because I grew up in a similarly food abundant
-place. In a way, it felt like coming home. Back to the market where I ate
-delicious apricots, strawberries, and loquat. In review, the strawberries were
-a bit tart.  Meanwhile, the loquat was quite large and a little fragile after
-being smushed by the strawberries all day but it was still great.
+place. In a way, it felt like coming home, relaxing and not needing to meal
+plan much. Back to the market, where I ate delicious apricots, strawberries, and
+loquat. In review, the strawberries were a bit tart.  Meanwhile, the loquat was
+quite large and a little fragile after being smushed by the strawberries all
+day but it was still great.
 
 Afterward, I had assorted house made dim sum at Shin Ye. It was good but tasted
 more like homemade dim sum than professional restaurant dim sum. The wrappers
 were all a very similar texture, thickness, and flavor. Whereas restaurant
 quality dim sum usually has a variety of textures, some thin and others
-translucent. The assortment contained xiaolongbao, among others, which were
-great because they had soup inside, which unfortunately isn't always the cause
-when eating xiaolongbao despite it being its signature feature.
+translucent. Within the assortment was xiaolongbao, which were great because
+they had soup inside, which unfortunately isn't always the case when eating
+xiaolongbao despite it being its signature feature.
 
-On my second day, I went to Malabar where I got bavette, shrimp, and a warm ube
-latte.  It came with some deliciously sweet sliced baguette on the side. Both
+Later in the day, I went to Malabar where I got bavette, shrimp, and a warm ube
+latte. It came with some deliciously sweet sliced baguette on the side. Both
 dishes were amazing. The ube latte was okay.
 
-In terms of snacking, there were lots of bakeries and pâtissier. On my third
+In terms of snacking, there were lots of bakeries and pâtissier. On my second
 day I got a croissant and pain au chocolat at a bakery, Boulangerie du Champ de
 Mars, which has pretty unique pastry bags with lots of words on it.  It was
 within walking distance from my hotel. I highly recommend their croissant. It
 was delicious. They also sold large pistachio macarons with flavors like
 coffee, chocolate, and lemon.  Another snack was soft sesame nougat from a
 chinese restaurant called traiteur asiastique DZ. it was delicious. Their
-website is traiteurdz.fr Then, Beitea had a nice peach lemon boba tea.
+website is traiteurdz.fr I also had a nice peach lemon boba tea from Beitea.
 
-For lunch, I ate vegetarian pho at Dong Phat, a popular lunch spot. Also also
+For lunch, I ate vegetarian pho at Dong Phat, a popular lunch spot. Also, I
 ordered the duck which was delicious but poorly cut. The waitstaff there
 understood Mandarin so that's an option for anyone who isn't comfortable with
 their French or English.
@@ -80,15 +83,17 @@ On my last day, I went to La Parisienne Mickaël Reydellet. The website is
 boulangerielaparisienne.com and I got three items: a brioche cadre sweet, a
 strawberry tartlet and a chousette de pomme. Chousettes de pomme were found in
 nearly every bakery so I felt like I had to try at least one before leaving the
-city. The one I ate was very flakey. As a bonus, the bakery was just around the
-corner from my hotel so I didn't have to wander far to find it.
+city. I liked all three but since I didn't eat the tartlet until I got to the
+airport, it was a little worse for wear structurally by then. The one I ate was
+very flakey. As a bonus, the bakery was just around the corner from my hotel so
+I didn't have to wander far to find it.
 
 
 ## Transportation
 
 I flew into Orly airport and flew out of Paris using Charles de Gualle (CDG)
 airport.  When comparing the airports, Orly airport is easier to connect to
-paris itself. Whereas, CDG has confusing transfers from Paris to CDG. I needed
+Paris itself. Whereas, CDG has confusing transfers from Paris to CDG. I needed
 to use RER to get to CDG, and then RER B specifically for the last leg of the
 journey. But taking the bus to RER did allow me to see the sights one last
 time.  RER is not a metro. Maybe they could be considered trams or trains. CDG
@@ -100,7 +105,7 @@ airport trips and regular daily use. The tickets could be reloaded using the
 app, reducing the need to use the transit machines at each station. I used the
 paper tickets so I didn't need to be worried about my phone running out of
 battery and no longer having an accessible ticket.  Navigo trams were
-convenient but takes a bit of time. Almost everything took 20-40 mins to travel
+convenient but took a bit of time. Almost everything took 20-40 mins to travel
 between. We mostly stayed in zone one of one to five.  Maybe, I went out of it
 to visit La Musicale Seine, but I'm not sure.  I only bought a day pass for one
 of the three days I was in paris since most sights that I wanted to see were
@@ -108,7 +113,7 @@ within walking distance.
 
 When finalizing my tax-free shopping, I thought CDG had convenient duty free
 machines. But the system was sometimes a bit delayed in synchronizing between
-machines, making me try several times to get my money back.
+machines, making me try several times to finally get my money back.
 
 ## Accommodation
 
@@ -122,7 +127,8 @@ tarifs/taxes in the price.
 
 ## Attractions
 
-I visited an eclectic assortment of attractions.
+I visited an eclectic assortment of attractions from Muji, luxury stores,
+sightseeing and book shopping.
 
 For one, I visited Muji for their thin pens and socks since it was raining most
 of the time and I hadn't brought enough socks. Luckily it was connected to one
@@ -130,8 +136,8 @@ of the train stations so I didn't have to go suffer the weather to get my pens
 and socks.
 
 Luxury stores often have a waiting area to enter and theyre on the same street
-as the arc de trioumphe which is the famous les Champs. But I didn't find
-anyone I connected with so I didn't buy anything.
+as the arc de trioumphe which is the famous les Champs. But I didn't connect
+with anything so I didn't make a purchase.
 
 Bateaux Mouches was €20 a person for an hour long ride up and down the Seine.
 We took the first boat ride at 10:00. Since it wasn't crowded, there were
