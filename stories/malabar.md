@@ -15,6 +15,9 @@ people didn't bathe so they covered up their stench with smoke and abundant
 perfume. The air was like this all up and down les Champs. It made it hard to
 breath a bit and like there was no fresh air.
 
+I split up my trip details into food, transportation,
+accomodation, and the attractions.
+
 ## Food
 
 Now to the best part of Paris, the food. There was lots to eat whether it was
@@ -83,35 +86,49 @@ corner from my hotel so I didn't have to wander far to find it.
 
 ## Transportation
 
-I used physical paper Navigo tickets. They were convenient to use and could be
-used for both the airport trips and regular daily use. The tickets could be
-reloaded using the app, reducing the need to use the transit machines at each
-station. I used the paper tickets so I didn't need to be worried about my phone
-running out of battery and no longer having an accessible ticket.
+I flew into Orly airport and flew out of Paris using Charles de Gualle (CDG)
+airport.  When comparing the airports, Orly airport is easier to connect to
+paris itself. Whereas, CDG has confusing transfers from Paris to CDG. I needed
+to use RER to get to CDG, and then RER B specifically for the last leg of the
+journey. But taking the bus to RER did allow me to see the sights one last
+time.  RER is not a metro. Maybe they could be considered trams or trains. CDG
+seems to be in zone 5 of the public transit map.
 
-orly airport is easier to connect to paris itself
+For transportation in Paris, I took public transit. I also used physical paper
+Navigo tickets. They were convenient to use and could be used for both the
+airport trips and regular daily use. The tickets could be reloaded using the
+app, reducing the need to use the transit machines at each station. I used the
+paper tickets so I didn't need to be worried about my phone running out of
+battery and no longer having an accessible ticket.  Navigo trams were
+convenient but takes a bit of time. Almost everything took 20-40 mins to travel
+between. We mostly stayed in zone one of one to five.  Maybe, I went out of it
+to visit La Musicale Seine, but I'm not sure.  I only bought a day pass for one
+of the three days I was in paris since most sights that I wanted to see were
+within walking distance.
 
-cdg has confusing transfers. need to use RER to get to CDG. rer B specifically for the last leg. but taking the bus to RER allowed me to see the sights one last time. RER is not metro. maybe they're trams or trains. CDG seems to be in zone 5.
-
-CDG had convenient duty free machines. But the system was sometimes a bit delayed to synchronize between machines.
-
-Navigo trams were convenient but takes a bit. Almost everything took 20-40 mins to travel between. We mostly stayed in zone one of one to five. Maybe went out of it to visit La Musicale Seine.
-
-I only bought a day pass for one of the three days I was in paris since most sights thats I wanted to see were within walking distance.
+When finalizing my tax-free shopping, I thought CDG had convenient duty free
+machines. But the system was sometimes a bit delayed in synchronizing between
+machines, making me try several times to get my money back.
 
 ## Accommodation
-all hotels in Paris must pay a city tax depending on the hotel's star rating.
-hotel eiffel 7 was decent. stinky elevator. on rue amelie. malonehotels.com and use promo code: WBACK
 
-it'll discount/make free most tarifs/taxes
-
-the hotel offered free luggage storage.
+A bit of background information first, all hotels in Paris must pay a city tax
+depending on the hotel's star rating. I stayed at a four star hotel, Hotel
+eiffel 7, which was decent. It also offered free luggage storage. However it
+had a stinky elevator which seemed to be the only way to my room. The hotel was
+located on rue amelie. Their website is malonehotels.com and use promo code:
+WBACK for a discounted rate for the next stay. It'll discount/make free most
+tarifs/taxes in the price.
 
 ## Attractions
 
-Visited Muji for their thin pens and socks since it was raining most of the time.
+I visited an eclectic assortment of attractions.
 
-luxury stores often have a waiting area to enter. but theyre on the same street as the arc de trioumphe
+For one, I visited Muji for their thin pens and socks since it was raining most
+of the time and I hadn't brought enough socks.
+
+Luxury stores often have a waiting area to enter. but theyre on the same street
+as the arc de trioumphe
 
 Bateaux Mouches was €20 a person for an hour long ride up and down the Seine. we took the first boat ride at 10:00. There were plenty of seats for everyone. The boat was less than half full. The boat trip provides a scenic view of over ten tourist attractions. The notable ones are The Eiffel Tower, Pont Alexandre III and Cathédrale Notre-Dame. The trip provides an amazing view of the Eiffel Tower. They have a loudspeaker announcing the sites as they appear in multiple languages, some of which were English, French, Spanish and Mandarin. But its not possible to hear the announcements when seated in the bottom interior seats.
 
