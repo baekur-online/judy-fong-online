@@ -125,11 +125,25 @@ tarifs/taxes in the price.
 I visited an eclectic assortment of attractions.
 
 For one, I visited Muji for their thin pens and socks since it was raining most
-of the time and I hadn't brought enough socks.
+of the time and I hadn't brought enough socks. Luckily it was connected to one
+of the train stations so I didn't have to go suffer the weather to get my pens
+and socks.
 
-Luxury stores often have a waiting area to enter. but theyre on the same street
-as the arc de trioumphe
+Luxury stores often have a waiting area to enter and theyre on the same street
+as the arc de trioumphe which is the famous les Champs. But I didn't find
+anyone I connected with so I didn't buy anything.
 
-Bateaux Mouches was €20 a person for an hour long ride up and down the Seine. we took the first boat ride at 10:00. There were plenty of seats for everyone. The boat was less than half full. The boat trip provides a scenic view of over ten tourist attractions. The notable ones are The Eiffel Tower, Pont Alexandre III and Cathédrale Notre-Dame. The trip provides an amazing view of the Eiffel Tower. They have a loudspeaker announcing the sites as they appear in multiple languages, some of which were English, French, Spanish and Mandarin. But its not possible to hear the announcements when seated in the bottom interior seats.
+Bateaux Mouches was €20 a person for an hour long ride up and down the Seine.
+We took the first boat ride at 10:00. Since it wasn't crowded, there were
+plenty of seats for everyone. The boat was less than half full. The boat trip
+provides a scenic view of over ten tourist attractions. The notable ones are
+The Eiffel Tower, Pont Alexandre III and Cathédrale Notre-Dame. The trip
+provides an amazing view of the Eiffel Tower, better even than being next to
+it. The company had a loudspeaker announcing the sites as they appear in
+multiple languages, some of which were English, French, Spanish and Mandarin.
+But its not possible to hear the announcements when seated in the bottom
+interior seats. So I had to sit on the upper outdoor seats to hear them.
 
-bookstores had le petit prince but not often le petit nicolas.
+I popped into quite a few bookstores and they had Le petit prince but not often
+Le petit nicolas. As I was looking for the latter, not the former, I was out of
+luck. And there ends my memories of my trip to Paris.
