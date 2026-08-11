@@ -1,34 +1,52 @@
 # Last minute paris trip
 
-First, general thoughts. I went on an extended weekend trip to Paris. The air
-is very dirty and grimy so I needed to shower often or the grime built up on my
-skin.
+First are my general thoughts. I went on an extended weekend trip to Paris
+because I've wanted to visit Paris for quite a few years. The most unexpected
+part was that the air is very dirty and grimy so I needed to shower often or
+the grime built up on my skin.
 
-In order to use bathrooms, be it near tourist attractions or in a restaurant,
-they required money, from fifty cents to a euro.
+Next, in order to use bathrooms, be it near tourist attractions or in a
+restaurant, the facilities required payment, anywhere from fifty cents to a
+euro.
 
-Being on L'avenue des Champs-Élysées or les Champs was like being transported
-to Elizabethean times when people didn't bathe so they covered up their stench
-with smoke and abundant perfume. The air was like this all up and down les
-Champs. It made it hard to breath a bit and like there was no fresh air.
+Then, there is being on L'avenue des Champs-Élysées or les Champs was like
+being transported to Elizabethean times but not in a good way, more like when
+people didn't bathe so they covered up their stench with smoke and abundant
+perfume. The air was like this all up and down les Champs. It made it hard to
+breath a bit and like there was no fresh air.
 
 ## Food
 
-On my first day, I passed by an outdoor market which sold lots of foods and
-especially fruits. Being there reminded me why I don't prioritize making food
-or looking for food, because I grew up in a similarly food abundant place. It
-felt like coming home. At the market, I ate delicious apricots, strawberries,
-and loquat. In review, the strawberries were a bit tart. Meanwhile, the loquat
-was quite large and a little fragile after being smushed by the strawberries
-all day but it was still great.
+Now to the best part of Paris, the food. There was lots to eat whether it was
+eating out or shopping at the grocery stores. Also, the lower bar for food
+quality was all acceptable which is harder to find in other cities.
+
+But some of these meals were pretty low fiber so I'd recommend hitting up the
+grocery stores or outer markets to get your daily fiber by eating veggie and
+fruit snacks. Grocery stores tended to be pretty common in some areas, like
+three in the same three block radius. Whereas others were full of restaurants
+and bakeries so grocery stores were hard to find.
+
+As for the grocery stores, Carrefour city was a corner store that was often
+opened late despite Google listing it as having shorter opening hours. I often
+bought the red Oasis drink which is like a mix between apple juice and Ribena.
+i highly recommend it along with Orangina if you want to try a local drink.
+
+On my first day, I passed by an outdoor market which sold lots of foods,
+especially fruits. Being there reminded me why I generally don't prioritize
+making food or looking for food, because I grew up in a similarly food abundant
+place. In a way, it felt like coming home. Back to the market where I ate
+delicious apricots, strawberries, and loquat. In review, the strawberries were
+a bit tart.  Meanwhile, the loquat was quite large and a little fragile after
+being smushed by the strawberries all day but it was still great.
 
 Afterward, I had assorted house made dim sum at Shin Ye. It was good but tasted
 more like homemade dim sum than professional restaurant dim sum. The wrappers
-were all a very similar texture and flavor. Whereas restaurant quality dim sum
-usually has a variety of textures, some thin and others translucent. The
-variety contained xiaolongbao which were great because they had soup inside,
-which unfortunately isn't always the cause despite it being xiaolongbao's
-signature feature.
+were all a very similar texture, thickness, and flavor. Whereas restaurant
+quality dim sum usually has a variety of textures, some thin and others
+translucent. The assortment contained xiaolongbao, among others, which were
+great because they had soup inside, which unfortunately isn't always the cause
+when eating xiaolongbao despite it being its signature feature.
 
 On my second day, I went to Malabar where I got bavette, shrimp, and a warm ube
 latte.  It came with some deliciously sweet sliced baguette on the side. Both
@@ -37,34 +55,31 @@ dishes were amazing. The ube latte was okay.
 In terms of snacking, there were lots of bakeries and pâtissier. On my third
 day I got a croissant and pain au chocolat at a bakery, Boulangerie du Champ de
 Mars, which has pretty unique pastry bags with lots of words on it.  It was
-within walk distance from my hotel. I highly recommend their croissant. It was
-delicious. They also sold large pistachio macarons with flavors like coffee,
-chocolate, and lemon.
+within walking distance from my hotel. I highly recommend their croissant. It
+was delicious. They also sold large pistachio macarons with flavors like
+coffee, chocolate, and lemon.  Another snack was soft sesame nougat from a
+chinese restaurant called traiteur asiastique DZ. it was delicious. Their
+website is traiteurdz.fr Then, Beitea had a nice peach lemon boba tea.
+
+For lunch, I ate vegetarian pho at Dong Phat, a popular lunch spot. Also also
+ordered the duck which was delicious but poorly cut. The waitstaff there
+understood Mandarin so that's an option for anyone who isn't comfortable with
+their French or English.
+
+For dinner that day, I had a delicious chicken alfredo linguine at Bar du
+Central. The meal also came with complimentary slices of baguette, as like
+Malabar. This might be a general trend at Parisian restaurants. As an aside,
+their waitstaff understood both English and French. This establishment is open
+late which is a plus when I was trying to fit a lot into my day as well as
+dinner.
 
 On my last day, I went to La Parisienne Mickaël Reydellet. The website is
-boulangerielaparisienne.com and got three items, a brioche cadre sweet, a
+boulangerielaparisienne.com and I got three items: a brioche cadre sweet, a
 strawberry tartlet and a chousette de pomme. Chousettes de pomme were found in
-nearly every bakery. The one I ate was very flakey. The bakery was just around
-the corner from my hotel.
+nearly every bakery so I felt like I had to try at least one before leaving the
+city. The one I ate was very flakey. As a bonus, the bakery was just around the
+corner from my hotel so I didn't have to wander far to find it.
 
-carrefour city was a corner store that was often opened late despite Google listing it as having shorter opening hours.
-red oasis is like a mix between apple juice and ribena. i highly recommend along with orangina.
-
-boght soft sesame nougat from a chinese restaurant called traiteur asiastique DZ. it was delicious. Their website is traiteurdz.fr
-
-At Bar du Central I had delicious chicken alfredo linguine. Their waitstaff understood both English and French. The meal also came with complimentary slices of baguette. This establishment is open late which is a plus when I was trying to fit a lot into my day as well as dinner.
-
-For lunch one day, I ate vegetarian pho at Dong Phat. The duck was delicious but poorly cut.
-
-Beitea had a nice peach lemon boba tea.
-
-the lower bar of food was all acceptable
-
-But some of these meals were pretty low fiber so I'd recommend hitting up the
-grocery stores or outer markets to get your daily fiber by eating veggie and
-fruit snacks. Grocery stores tended to be pretty common in some areas, like
-three in the same three block radius. Whereas others were full of restaurants
-and bakeries so grocery stores or hard to find.
 
 ## Transportation
 
