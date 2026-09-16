@@ -18,4 +18,4 @@ makes about 20 cookies, two trays
 0. preheat oven to 185 C
 1. mix butter, sugar, egg, and vanilla together with matcha powder and peanut buttee
 2. then add in baking powder, baking soda and flour
-3. bake at 185 C for 8-10 mins
+3. bake at 185 C with fan on for 8-10 mins or slightly higher temp without fan.
